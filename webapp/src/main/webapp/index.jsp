@@ -1,1 +1,1 @@
- Welcome to great leaders from Bangalore and kottur
+ Welcome to great leaders from  kottur
