@@ -1,1 +1,1 @@
- Welcome to great leaders from  KOTTUR
+ Welcome to great leaders from KARNATAKA KANNADIGA'S
