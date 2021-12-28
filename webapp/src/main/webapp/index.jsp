@@ -1,1 +1,1 @@
- Welcome to great leaders from KARNATAKA KANNADIGA'S
+ to great leaders from KARNATAKA KANNADIGA'S
