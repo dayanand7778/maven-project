@@ -1,1 +1,1 @@
- great leaders from KARNATAKA KANNADIGA'S
+ great leaders from KARNATAKA KANNADIGA
